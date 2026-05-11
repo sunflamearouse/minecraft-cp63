@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with bridger western rare Script, the #1 Script. Includes undetectable and god mode for unbeatable
 
 
 
